@@ -1,4 +1,4 @@
-#  
+#  math for brainrots Scripts premium offers the most advanced math for brainrots Script, with undetectable and esp. Perfect for dominating any match.
 
 
 
